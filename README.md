@@ -56,7 +56,7 @@ We provide custom crating solutions for a wide range of industries, including:
 
 ## Request a Quote Today
 
-Protect your products with **custom wood packing crates in Long Beach** built for strength, safety, and performance. **Request a quote today** to receive a tailored crating solution that meets your exact shipping and handling needs.
+Protect your products with [**custom wood packing crates in Long Beach**](https://www.bluerosepackaging.com/product-category/custom-products/custom-wooden-shipping-crates/) built for strength, safety, and performance. **Request a quote today** to receive a tailored crating solution that meets your exact shipping and handling needs.
 
 ---
 
@@ -79,5 +79,5 @@ Production timelines depend on design and volume, but we prioritize fast turnaro
 
 ---
 
-Bluerose Packaging delivers reliable, compliant, and durable [**custom wood packing crates in Long Beach**](https://www.bluerosepackaging.com/product-category/custom-products/custom-wooden-shipping-crates/), helping businesses ship products safely, efficiently, and with confidence.
+Bluerose Packaging delivers reliable, compliant, and durable [**custom wood packing crates in Long Beach**]helping businesses ship products safely, efficiently, and with confidence.
 
